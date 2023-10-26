@@ -1,2 +1,2 @@
 # Chaos
-Life's a beautiful chaos
+Life's beautiful and chaotic 
